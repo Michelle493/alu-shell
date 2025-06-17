@@ -1,1 +1,1 @@
-Michelle is beautiful girl
+Michelle is a beautiful girl
